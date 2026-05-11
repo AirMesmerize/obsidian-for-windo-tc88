@@ -1,4 +1,4 @@
-
+best Obsidian for Windows Integration | folders + rich-text-editing is the best Obsidian for Windows integration, featuring folders and rich-text-editing. Powerful, efficient, and
 
 
 
